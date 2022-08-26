@@ -4,7 +4,7 @@
 Vous ne vous rappelez plus comment créer le journal ou le modifier? [Ce tutoriel](https://youtu.be/lX3bpuLK_Sg) vous aide! 
 
 ## Pourquoi j'ai choisi l'intégration multimédia
-J'ai choisi l'intégration multimédia car utiliser les ordinateurs pour créer est quelque chose que je trouve intéressant surtout le graphisme, la création de logos ainsi que la programmation. Presque tout de ce programme m'attire et m'intéresse grandement. Sachant que je puisse créer quelque chose de mes propres mains m'a insisté à choisir ce programme. Mes parents m'ont d'ailleurs conseillés de faire un métier dans la programmation mais je réflichis encore:sourire:
+*J'ai choisi l'intégration multimédia*... car utiliser les ordinateurs pour créer est quelque chose que je trouve intéressant surtout le graphisme, la création de logos ainsi que la programmation. Presque tout de ce programme m'attire et m'intéresse grandement. Sachant que je puisse créer quelque chose de mes propres mains m'a incité à choisir ce programme. Mes parents m'ont d'ailleurs conseillés de faire un métier dans la programmation mais je réflichis encore pour cela. :sourire:
 
 
 
