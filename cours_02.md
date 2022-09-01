@@ -3,14 +3,14 @@
 Choisissez cinq oeuvres ou compagnies multimédia. Expliquez en quoi ces dernières pourraient contribuer à votre démarche artistique? Pourquoi vous intéressent-t-elles? Comme titre, mettez un lien vers un site relié à votre oeuvre ou entreprise. Écrire 2 à 3 lignes par lien.
 
 Exemple: 
-### [Bulle](https://www.onf.ca/interactif/bulle/) 
-L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui porte un message fort. En effet, elle tente de nous sensibiliser aux enjeux climatiques. Prendre position et défendre des valeurs par l'art est l'un des aspects du multimédia qui m'intéresse beaucoup. 
+### [Bulle](https://momentfactory.com/projets/all/all/concert-phish-jour-de-la-terre) 
+Cette oeuvre me semble être quelque chose d'incroyable. Nous autres humains, ont la chance d'en contempler un peu plus sur les aniamux marins qu'on ne voit pas tous les jours.
 
-### Lien 1 
-Expliquer pourquoi vous avez choisi ce lien. 
+### [Phish]
+L'oeuvre de phish me semble être quelque chose d'incroyable. Nous autres humains, ont la chance d'en contempler un peu plus sur les aniamux marins qu'on ne voit pas tous les jours.
 
-### Lien 2 
-Expliquer pourquoi vous avez choisi ce lien.
+### Numa  https://numa.media/4-nocturna/
+J'ai choisi cette oeuvre car j'aime bien toutes expériences lumineuses qui se font dans le noir. 
 
 ### Lien 3 
 Expliquer pourquoi vous avez choisi ce lien.  
