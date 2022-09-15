@@ -2,7 +2,9 @@
 ## Plan de présentation
 
 ### Présentation
-Parlez de vous. 
+Je m'appelle Dasean, jai 17 ans et c'est ma première année au cégep.
+J'aime les activitées sportives, regarder des films,séries animes et autres
+La nouvelle technologie me facsine et je suis curieux d'en savoir plus. C'est la d'ailleurs la raison de mon choix de ce programme.
 
 ### Intérêts dans le domaine
 Parlez de vos intérêts en multimédia. 
