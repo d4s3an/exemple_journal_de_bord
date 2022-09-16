@@ -11,12 +11,15 @@ En choisissant ce programme, j'espère en savoir davantage après cette session 
 
 ### Emplois qui vous intéressent
 Programmeur, sachant le choix de mon cours ou encore Graphiste, l'usage de typographie, les images et créer des logos.
+Illustrateur aussi, entre les deux.
 
 ### Identification
-Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
+Halo création et je m'identifie à l'artiste Andy Potts, Illustrateur. J'espère pouvoir illustré des oeuvres du même genre.
 
 ### Dans 5 ans
 Aller jusqu'à l'université et réussir ma vie avec le multimédia.
 
 ### Projets
-Expliquez un ou des projets que vous aimeriez faire. 
+Je crois que j'essayerais de créer des logos ou des sites webs.
+Travailler dans le dessin,car j'aime aussi dessiner
+Assister à la création d'un jeu
